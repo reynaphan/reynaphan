@@ -1,7 +1,7 @@
-Hi **folks** 👋
+Hi folks 👋
 
 
-I'm a 1️⃣st year student at **UCI** 🏫.
+I'm a 1️⃣st year student at UCI 🏫.
 
 
 
