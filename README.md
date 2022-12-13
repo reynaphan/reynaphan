@@ -2,6 +2,7 @@ Hi folks 👋
 
 
 I'm a 1️⃣st year student at UCI 🏫.
+How to reach me: ![vsco 💌](vsco.com/reynaphan)
 
 <!---
 reynaphan/reynaphan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
