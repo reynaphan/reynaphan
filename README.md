@@ -1,7 +1,10 @@
 Hi folks 👋
 
 
-I'm a 1️⃣st year student at UCI 🏫.
+I'm a 3️⃣rd year student at UC Irvine 🏫.
+📫 How to reach me: reynap2@uci.edu
+🌐 linkedin.com/in/reynaphan
+
 
 
 
